@@ -7,3 +7,7 @@ i'm putting this link in the readme, "who lives, who dies, who tells your story"
 some, such as pacific dub were made from internet comments like this song here
 
 https://youtu.be/fFIAK27wvvQ?si=fYlsNjLSWD3HvjPR i dont remember direct contact with the reggae creators hardly at all. but they're really really positive beats to hear. there was some contact, though.
+dont break; hippa, right?
+
+this one is also in some assosiation of myself though i dont know whether there were contact.
+https://youtu.be/QakfhW1rPJQ?si=5XDaEgdzMJfRFGXq
