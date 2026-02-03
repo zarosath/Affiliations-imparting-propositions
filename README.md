@@ -3,3 +3,7 @@ You may see all content i have in affiliation through direct contact or digital 
 
 i'm putting this link in the readme, "who lives, who dies, who tells your story" though no affiliation i am aware of, all information and content from playlist are all through affiliation with myself.
 (https://youtu.be/_gnypiKNaJE?si=p3U0m0EX_tXp7Ypa)
+
+some, such as pacific dub were made from internet comments like this song here
+
+https://youtu.be/fFIAK27wvvQ?si=fYlsNjLSWD3HvjPR i dont remember direct contact with the reggae creators hardly at all. but they're really really positive beats to hear. there was some contact, though.
