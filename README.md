@@ -11,3 +11,5 @@ dont break; hippa, right?
 
 this one is also in some assosiation of myself though i dont know whether there were contact.
 https://youtu.be/QakfhW1rPJQ?si=5XDaEgdzMJfRFGXq
+
+some were direct digital contact ; : https://youtu.be/pD_eyZAhS6o?si=hDfuJmm4C8sMMljP
